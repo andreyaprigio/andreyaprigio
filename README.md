@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Andrey Aprigio 😁
+## Bem-vindo(a) ao perfil do Andrey Aprigio 🤗
 
  <div>
    <a href="https://github.com/andreyaprigio">
